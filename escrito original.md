@@ -142,11 +142,15 @@ Cerca del cuarto de Jorge nos encontramos a un señor ya mayor encerrado en otro
 Por fortuna encontramos unas escaleras movibles que nos permitieron abandonar la casa, para luego llegar a otra un poco más segura, por supuesto que camino no fue nada fácil, el Padre Reinaldo volvió a caer al romperse otro techo de asbesto. Como pude me metí por debajo del techo y lo ayudé a salir, y en lo que le indico el resto del camino, me dice: - ‘Pedro, ya no puedo más’. A lo que le respondo: - ‘Padre, … siga que usted puede’.
 
 ### 02:45 PM aproximadamente:
-***
+Llegamos a una casa como de tres pisos, y nos mantuvimos en la azotea. Bebela y Carlos Alberto tomaron algunas uvas en el camino y con eso comimos un poco. La mamá de Bebela, la señora Miriam, le decía a su hija: - ¡Pero bueno mujer!, ¿Te volviste loca?, ¡Éste no es momento para estar pensando en uvas! Pero gracias a ese acto, que yo consideré genial, nos alimentamos un poco.
+La lluvia todavía no paraba, el frío nos estaba comiendo, y a pesar de que el lugar a donde llegamos aún no se había derrumbado, teníamos la angustia de permanecer allí, era por eso, que estábamos ideando otra ruta de escape.
+En realidad, yo estaba ya bastante tranquilo y agradecido con el Todopoderoso por habernos permitido a mi familia y a mi haber permanecido con vida un par de horas más. Entre un segundo y otro hay infinitos instantes de tiempo, yo quería vivir cada uno de esos instantes sin desperdiciarlos.
+Ya un poco más tranquilo Carlos Alberto, me decía: - ‘Mi vida ya no será la misma, y pensar que ayer sólo me preocupaban los preparativos de mi boda del sábado’. Justamente Carlos Alberto se casaba el sábado 18 de diciembre en la iglesia de Macuto.
 
 ### 04:45 PM aproximadamente:
-***
+La fuerza de la lluvia por fin empezaba a disminuir, y escapan Bellatriz, Betelyé, su hermanita menor, su madre y no sé si unos cuantos más.
+Viendo que la fuerza de la lluvia continuaba disminuyendo. Salgo junto con Benjamín, Dayana y su hija a buscar un lugar seguro. Benjamín y su familia se refugian en una casa, y yo sigo bajando hasta llegar al edifico. Al ver que el camino era seguro, me devuelvo a hacerle señas al resto del grupo para que corrieran al edificio.
 
 ### 05:30 PM aproximadamente:
-***
-
+Todo el grupo llegó al edifico, la meta ya estaba cumplida. Fue entonces el momento de descansar para los que tenían que descansar y de llorar para los que tenían que llorar.
+A pesar de que la pesadilla no había terminado, me sentí muy feliz de haber pasado ya por la parte más difícil, y a pesar de que dormimos en el piso de un apartamento que la mamá de Víctor Domínguez (amigo de la infancia de mi hermano Abelardo) le había prestado a mi mamá, creo que fue una de las mejores noches de mi existencia.
